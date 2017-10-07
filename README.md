@@ -1,0 +1,2 @@
+# Ielts-coaching-centers-in-hyderabad-
+The International English Language Testing System which is abbreviated as IELTS is owned and jointly managed by Cambridge English Language Assessment, the British Council and IDP Education Pvt Ltd is one of the major English language tests in the world. IELTS exam is designed to assess the candidates’ ability to handle English and their proficiency of their language. Though the native English speakers can takeh this test.http://www.ieltsreview.com/
